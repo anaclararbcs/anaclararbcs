@@ -1,6 +1,6 @@
-## eu
+## eu 😜😨😱😵🤭💩👽👻☠👾🙀👣
 - gosto do meu gato
-- gosto de assistr
+- gosto de assistir serie e filme
 - gosto das minhas amigas
 - amo o meu gato
 
